@@ -1,1 +1,1 @@
-# FREE-FIRE-X
+# FREE-FIRE-1x1
